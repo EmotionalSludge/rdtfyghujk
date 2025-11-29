@@ -7,7 +7,7 @@
 
  
 
- You can gennerally call me what every you want! I'm probbably gonna be sitting alone most days so please c+h freely!!!! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b52ddede-d13f-4850-a8b7-dffd36dc72e3" />
+ You can gennerally call me what ever you want! I'm probbably gonna be sitting alone most days so please c+h freely!!!! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b52ddede-d13f-4850-a8b7-dffd36dc72e3" />
 
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/088a2b7a-f34a-4644-ae2a-25412a5a11e1" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e50f4b4b-3714-49b8-8c07-e2eccaa77a16" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/151bfceb-b0f5-4a8a-ae19-cdfcce0da221" />
