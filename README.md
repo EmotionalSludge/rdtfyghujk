@@ -12,7 +12,7 @@
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/088a2b7a-f34a-4644-ae2a-25412a5a11e1" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e50f4b4b-3714-49b8-8c07-e2eccaa77a16" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/151bfceb-b0f5-4a8a-ae19-cdfcce0da221" />
 
-Honestly there isnt much more too me sooo friend me freely <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d93519f2-6445-434b-ad8b-e08053a3f2f5" />
+Honestly there isnt much more to me sooo friend me freely <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d93519f2-6445-434b-ad8b-e08053a3f2f5" />
 
 
 <img width="240" height="420" alt="image" src="https://github.com/user-attachments/assets/79123836-af61-418d-ab15-5976e7fa201f" />
